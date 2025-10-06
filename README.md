@@ -2,3 +2,4 @@
 Hello from Pinyaluk
 ruk na
 eiei
+gangwan nee gin rai
