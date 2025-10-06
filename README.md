@@ -2,4 +2,6 @@
 Hello from Pinyaluk
 ruk na
 eiei
-gangwan nee gin rai
+don't soda with me
+gin rai
+
